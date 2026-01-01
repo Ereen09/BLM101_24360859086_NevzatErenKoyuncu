@@ -1,0 +1,2 @@
+# BLM101_24360859086_NevzatErenKoyuncu
+BMG projesi
